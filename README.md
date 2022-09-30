@@ -1,0 +1,1 @@
+# qa_pt_kateryna_dohan
